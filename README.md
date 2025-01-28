@@ -27,5 +27,5 @@ Here’s what I’m working with as I begin my journey:
 
 🌐 Let's Connect
 Feel free to reach out or share advice:
-- [LinkedIn](https://www.linkedin.com/in/xxx)
+- [LinkedIn](https://www.linkedin.com/in/nourah-alnaimi-787681200)
 
